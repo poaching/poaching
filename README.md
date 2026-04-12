@@ -7,3 +7,8 @@
 🍥
 
 [rentry + ata](https://rentry.co/femur)
+
+
+... c+h *ok and encouraged* unless im sitting with my pals
+
+... feel free to interact with me, just note i am a bit awkward with interaction
